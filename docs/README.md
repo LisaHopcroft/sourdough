@@ -54,9 +54,10 @@ If I want to have a loaf ready for Saturday morning, I start on Friday morning. 
 
 I use [Kat's Everyday Sourdough recipe on the Gartur Stitch blog](https://garturstitchfarm.com/blog/kats-basic-sourdough). The only change that I've made to this is that I use 15g of salt, rather than 20g.
 
+I mix my dough in a big, wide, plastic salad bowl that I got from a supermarket. I use a plastic dough scraper ([like this]( https://www.amazon.co.uk/Vogue-E401-Plain-Plastic-Scraper/dp/B00237UYDG/)) to [stretch and fold](https://www.youtube.com/watch?v=QYzxulQY1Gc), but you can just use your hands (I just prefer to keep my hands clean). When putting it in the fridge, I line a ceramic baking bowl with a muslin cloth (a dish cloth will do), flour the cloth and then put the dough in. I use a razor blade to do the scoring (you will have to do some scoring to make sure that it will rise properly).
+
 I bake my inside a cast iron pot, which does make quite a big difference. I sometimes add ~150g of another flour (e.g., rye or spelt)...more than that might work (I haven't tried), it starts to get a bit more dense at 150g. The Gartur Stitch farm has lots of amazing recipes - cinnamon buns and pizza dough are both tried and tested and delicious!
 
-I mix my dough in a big, wide, melamine salad bowl that I got from a supermarket. I use a plastic dough scraper ([like this]( https://www.amazon.co.uk/Vogue-E401-Plain-Plastic-Scraper/dp/B00237UYDG/)) to stretch and fold, but you can just use your hands (I just prefer to keep my hands clean). When putting it in the fridge, I line a ceramic baking bowl with a muslin cloth (a dish cloth will do), flour the cloth and then put the dough in. I use a razor blade to do the scoring (you will have to do some scoring to make sure that it will rise properly).
 
 ## Feeding 
 
