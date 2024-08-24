@@ -21,7 +21,7 @@ I should say that I'm a very unadventurous sourdough baker - I have one recipe t
 
 When you take it home today, put it in a big glass jar. Needs to be glass so that you can see when your starter gets bubbly.
 
-Make sure that the jar is big enough to accommodate the starter when it gets active and bubbly. I'd recommend that you have at least 2/3 space for 1/3 starter (I think the one I use is 1l). Make sure the opening is big enough for you to give the contents a good mix.
+Make sure that the jar is big enough to accommodate the starter when it gets active and bubbly. I'd recommend that you use something big enough so that your starter occupies about 1/3 of the volume (I think the one I use is 1l). Make sure the opening is wide enough for you to give the contents a good mix.
 
 Remove the rubber seal on the lid if your jar has one. Otherwise the gases that your starter generates when it is active will accumulate and this may cause a messy explosion in your fridge.
 
