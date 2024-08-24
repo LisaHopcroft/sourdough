@@ -4,27 +4,30 @@ You're here because I've given you some sourdough starter! Now you need to know 
 
 The instructions below will sound complicated at first. Don't worry, you'll get the hang of it after a few goes.
 
-I should say that I'm a very unadventurous sourdough baker - I have one recipe that I use over and over again. I occassionally try new ones, but the one I'm going to link to below fits into our lives much easier than anything more complicated.
+I should say that I'm a very unadventurous sourdough baker - I have one recipe that I use over and over again. I occasionally try new ones, but the one I'm going to link to below fits into our lives much easier than anything more complicated.
 
-## What you need
+## What you will need
 
-- A big glass jar
+- A big glass jar with lid (mine is 1l with a flip top lid)
 - Good quality (preferably organic) rye flour
 - Strong white bread flour
+- Dough scraper (optional)
+- Large cast iron pot (optional)
+- Sharp knife, razor blade or lame
 
 ## What to do with your starter
 
 ### Put it in a big jar
 
-When you take it home today, put it in a big glass jar. I recommend glass because it's easier to see when your starter is bubbly.
+When you take it home today, put it in a big glass jar. Needs to be glass so that you can see when your starter gets bubbly.
 
-Make sure that this jar is big enough to accommodate the starter when it gets active and bubbly. I'd recommend that you have at least 2/3 space for 1/3 starter. Make sure the opening is big enough for you to give the contents a good mix.
+Make sure that the jar is big enough to accommodate the starter when it gets active and bubbly. I'd recommend that you have at least 2/3 space for 1/3 starter (I think the one I use is 1l). Make sure the opening is big enough for you to give the contents a good mix.
 
-If you use a jar with a flip top lid, remove the rubber seal if is has one. Otherwise when your starter is active, the gases that it generates might cause a messy explosion in your fridge.
+Remove the rubber seal on the lid if your jar has one. Otherwise the gases that your starter generates when it is active will accumulate and this may cause a messy explosion in your fridge.
 
 ### Feed it
 
-I've probably given you 200g of starter. If that is the case, add 110g water and 90g of dark rye flour. There is more information about feeding below.
+I've probably given you 200g of starter. If that is the case, add 110g water and 90g of dark rye flour. If it is not 2009, weigh it and then add the same proportion of water/flour to make the weight up to 400g. There is more information about feeding below.
 
 **If you don't have everything you need to bake a loaf, you can put it in the fridge just now until you have everything.  Just remember that you will have to feed it first when you do take it out the fridge to bake.**
 
@@ -49,11 +52,11 @@ To make a loaf, I do the following:
 
 If I want to have a loaf ready for Saturday morning, I start on Friday morning. This sounds a lot, but most of this time the dough is resting or in the fridge; hands on time is probably about 20-30 minutes once you get into a routine.
 
-The recipe I use is on the Gartur Stitch blog (https://garturstitchfarm.com/blog/kats-basic-sourdough). The only change I've made to this is that I use 15g of salt, rather than 20g.
+I use [Kat's Everyday Sourdough recipe on the Gartur Stitch blog](https://garturstitchfarm.com/blog/kats-basic-sourdough). The only change that I've made to this is that I use 15g of salt, rather than 20g.
 
-I bake mine inside a cast iron pot, which does make quite a big difference.  I sometimes add ~150g of another flour (e.g., rye or spelt)...more than that might work (I haven't tried), it starts to get a bit more dense at 150g.  The Gartur Stitch farm has lots of amazing recipes - cinnamon buns and pizza dough are both tried and tested and delicious!
+I bake my inside a cast iron pot, which does make quite a big difference.  I sometimes add ~150g of another flour (e.g., rye or spelt)...more than that might work (I haven't tried), it starts to get a bit more dense at 150g.  The Gartur Stitch farm has lots of amazing recipes - cinnamon buns and pizza dough are both tried and tested and delicious!
 
-I mix my dough in a big, wide, melamine salad bowl that I got from a supermarket.  I use a plastic dough scraper (e.g., https://www.amazon.co.uk/Vogue-E401-Plain-Plastic-Scraper/dp/B00237UYDG/), but you can just use your hands (I just like to keep mine clean so that I don’t have to wash them as much).  When putting it in the fridge, I line a ceramic baking bowl with a muslin cloth (a dish cloth will do), flour the cloth and then put the dough in.  I use a razor blade to do the scoring (you will have to do some scoring to make sure that it will rise properly).
+I mix my dough in a big, wide, melamine salad bowl that I got from a supermarket.  I use a [plastic dough scraper]( https://www.amazon.co.uk/Vogue-E401-Plain-Plastic-Scraper/dp/B00237UYDG/), but you can just use your hands (I just like to keep mine clean so that I don’t have to wash them as much).  When putting it in the fridge, I line a ceramic baking bowl with a muslin cloth (a dish cloth will do), flour the cloth and then put the dough in.  I use a razor blade to do the scoring (you will have to do some scoring to make sure that it will rise properly).
 
 ## Feeding 
 
@@ -67,14 +70,17 @@ If you are baking once a week, you are probably OK to just feed it as I suggeste
 
 ## Discard recipes
 
+If you back regularly, it will start to feel a bit of a waste throwing out the starter, especially if you're using high quality organic rye flour.
+
 There are loads of sourdough discard recipes out there, I've included some links below.
 
-- https://garturstitchfarm.com/everyday-sourdough-discard-recipes
-- https://www.kingarthurflour.com/recipes/collections/sourdough-discard-recipes
+- [Gartur Stitch Farm discard recipes](https://garturstitchfarm.com/everyday-sourdough-discard-recipes)
+- [King Arthur Flour discard recipes](https://www.kingarthurflour.com/recipes/collections/sourdough-discard-recipes)
 
 This is an especially useful one, negligible faff and good for school lunch boxes.
-- https://alexandracooks.com/2022/09/11/easy-sourdough-discard-crackers-5-ingredients/
+- [Easy sourdough discard crackers](https://alexandracooks.com/2022/09/11/easy-sourdough-discard-crackers-5-ingredients/)
  
+
 
 ## Going on holiday
 
