@@ -27,7 +27,7 @@ Remove the rubber seal on the lid if your jar has one. Otherwise the gases that 
 
 ### Feed it
 
-I've probably given you 200g of starter. If that is the case, add 110g water and 90g of dark rye flour. If it is not 2009, weigh it and then add the same proportion of water/flour to make the weight up to 400g. There is more information about feeding below.
+I've probably given you 200g of starter. If that is the case, add 110g water and 90g of dark rye flour. If it is not 200g, weigh it and then add the same proportion of water/flour to make the weight up to 400g. There is more information about feeding below.
 
 **If you don't have everything you need to bake a loaf, you can put it in the fridge just now until you have everything. Just remember that you will have to feed it first when you do take it out the fridge to bake.**
 
