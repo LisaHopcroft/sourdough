@@ -62,11 +62,19 @@ I mix my dough in a big, wide, melamine salad bowl that I got from a supermarket
 
 The starter needs to be fed regularly to keep it active.
 
-To feed it, remove ~200g of starter from your jar. You can either discard this or use it in other recipes (I've included some discard recipes below).
+To feed it:
 
-Add the water and mix thoroughly - really whip it up, the air is good for it. Then add the flour and mix well again.  I feed mine about 110g water and then 90g-ish organic rye flour. I've found that this ratio keeps the consistency about right (but the starter is very forgiving!). I used to feed it wholemeal flour, but I found that dark rye (not white rye!)is much better for getting it active and bubbly, which means you get a better rise in your loaf. Organic flour will contain more natural yeasts.
+1. remove ~200g of starter from your jar (you can either discard this or use it in other recipes, I've included some discard recipes below)
+2. Add ~100g of water and mix thoroughly - really whip it up, the air is good for it
+3. Add ~100g dark rye flour and mix well again
 
-If you are baking once a week, you are probably OK to just feed it as I suggested above: in the morning before you bake.  If you are going to skip a week, you will want to feed it in the fridge - you don't have to warm it up for this, just take it out the fridge, feed it and then put it back in the fridge.
+That's it!
+
+RE the dark rye flour - I used to feed my starter with wholemeal flour, but I found that organic dark rye (not white rye!) is much better for getting it active and bubbly, which means you get a better rise in your loaf. Organic flour will contain more natural yeasts.
+
+If you are baking once a week or more, you are probably OK to just feed it as I suggested above: in the morning before you bake. If you are going to skip a week, you may want to feed it in the fridge - you don't have to get it to room temperature for this, just take it out the fridge, feed it and then put it back in the fridge.
+
+If your starter has a layer of liquid on it when you go to feed it, you can either mix it in or pour it off. It might be the alcohol byproduct of the yeast reaction...?
 
 ## Discard recipes
 
@@ -74,16 +82,15 @@ If you back regularly, it will start to feel a bit of a waste throwing out the s
 
 There are loads of sourdough discard recipes out there, I've included some links below.
 
-- [Gartur Stitch Farm discard recipes](https://garturstitchfarm.com/everyday-sourdough-discard-recipes)
+- [Gartur Stitch Farm discard recipes](https://garturstitchfarm.com/blog/category/Discard+Recipes)
 - [King Arthur Flour discard recipes](https://www.kingarthurflour.com/recipes/collections/sourdough-discard-recipes)
 
 This is an especially useful one, negligible faff and good for school lunch boxes.
 - [Easy sourdough discard crackers](https://alexandracooks.com/2022/09/11/easy-sourdough-discard-crackers-5-ingredients/)
  
-
-
 ## Going on holiday
 
 I've kept my starter in the fridge for up to a month without using it. It might be a bit sleepy when you first go to use it, just feed it a couple of times before doing any baking to wake it up a bit.
 
 You can freeze your starter if you're not going to use it for longer. I haven't done this, so you'd be better looking up advice elsewhere online about this.
+
