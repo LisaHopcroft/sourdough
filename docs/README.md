@@ -4,9 +4,9 @@ You're here because I've given you some sourdough starter! Now you need to know 
 
 The instructions below will sound complicated at first. Don't worry, you'll get the hang of it after a few goes.
 
-I should say that I'm a very unadventurous sourdough baker - I have one recipe that I use over and over again. I occasionally try new ones, but the one I'm going to link to below fits into our lives much easier than anything more complicated.
+I should say that I'm generally a very unadventurous sourdough baker - I have one recipe that I use over and over again. I occasionally try new ones, but the loaf recipe I link to below fits into our lives much easier than anything more complicated.
 
-You can use sourdough starter for other things too, the recipes below are tried, tested and very delicious:
+That being said, I can recommend the following - tried, tested and very delicious:
 
 - [Sourdough pizza crust](https://garturstitchfarm.com/blog/sourdough-pizza-crust)
 - [Sourdough cinnamon rolls](https://garturstitchfarm.com/blog/kevins-sourdough-cinnamon-rolls) - I've also made these with orange/cranberry and chocolate fillings
