@@ -6,6 +6,11 @@ The instructions below will sound complicated at first. Don't worry, you'll get 
 
 I should say that I'm a very unadventurous sourdough baker - I have one recipe that I use over and over again. I occasionally try new ones, but the one I'm going to link to below fits into our lives much easier than anything more complicated.
 
+You can use sourdough starter for other things too, the recipes below are tried, tested and very delicious:
+
+- [Sourdough pizza crust](https://garturstitchfarm.com/blog/sourdough-pizza-crust)
+- [Sourdough cinnamon rolls](https://garturstitchfarm.com/blog/kevins-sourdough-cinnamon-rolls) - I've also made these with orange/cranberry and chocolate fillings
+
 ## What you will need
 
 - A big glass jar with lid (mine is 1l with a flip top lid)
@@ -52,12 +57,11 @@ To make a loaf, I do the following:
 
 If I want to have a loaf ready for Saturday morning, I start on Friday morning. This sounds a lot, but most of this time the dough is resting or in the fridge; hands on time is probably about 20-30 minutes once you get into a routine.
 
-I use [Kat's Everyday Sourdough recipe on the Gartur Stitch blog](https://garturstitchfarm.com/blog/kats-basic-sourdough). The only change that I've made to this is that I use 15g of salt, rather than 20g.
+I use [Kat's Everyday Sourdough recipe on the Gartur Stitch blog](https://garturstitchfarm.com/blog/kats-basic-sourdough). The only change that I've made to this is that I use 15g of salt, rather than 20g. I sometimes add ~150g of another flour (e.g., rye or spelt)...more than that *may* work (I haven't tried) but my experience is that it starts to get a bit more dense at 150g.
 
 I mix my dough in a big, wide, plastic salad bowl that I got from a supermarket. I use a plastic dough scraper ([like this]( https://www.amazon.co.uk/Vogue-E401-Plain-Plastic-Scraper/dp/B00237UYDG/)) to [stretch and fold](https://www.youtube.com/watch?v=QYzxulQY1Gc), but you can just use your hands (I just prefer to keep my hands clean). When putting it in the fridge, I line a ceramic baking bowl with a muslin cloth (a dish cloth will do), flour the cloth and then put the dough in. I use a razor blade to do the scoring (you will have to do some scoring to make sure that it will rise properly).
 
-I bake my inside a cast iron pot, which does make quite a big difference. I sometimes add ~150g of another flour (e.g., rye or spelt)...more than that might work (I haven't tried), it starts to get a bit more dense at 150g. The Gartur Stitch farm has lots of amazing recipes - cinnamon buns and pizza dough are both tried and tested and delicious!
-
+I bake mine inside a big cast iron pot, which does make quite a big difference to how well it rises.
 
 ## Feeding 
 
