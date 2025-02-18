@@ -96,6 +96,7 @@ There are loads of sourdough discard recipes out there, I've included some links
 - [Gartur Stitch Farm discard recipes](https://garturstitchfarm.com/blog/category/Discard+Recipes)
 - [King Arthur Flour discard recipes](https://www.kingarthurflour.com/recipes/collections/sourdough-discard-recipes)
 - [Sourdough banana muffins](https://veganyackattack.com/2022/01/20/one-bowl-sourdough-banana-muffins/)
+- [Sourdough discard sheet pan pancakes](https://www.pantrymama.com/sourdough-discard-sheet-pan-pancakes/)
 
 This is an especially useful one, with negligible faff and good for school lunch boxes.
 - [Easy sourdough discard crackers](https://alexandracooks.com/2022/09/11/easy-sourdough-discard-crackers-5-ingredients/)
